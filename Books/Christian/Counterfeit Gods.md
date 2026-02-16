@@ -48,15 +48,52 @@ someone is to “give them over to the desires of their hearts” (Romans 1:24).
 God called
 
 Abraham to leave all that was familiar—his friends, most of his family, and
-
 everything that he believed meant safety, prosperity, and peace—and go out
-
 into the wilderness, uncertain of his destination. He was asked to give up,
-
-for God’s sake, nearly all the worldly hopes and things that a human heart
-
-desires.
-
+for God’s sake, nearly all the worldly hopes and things that a human heart desires.
 And he did. He was called to “go” and he went, “though he did not know
-
 where he was going” (Hebrews 11:8)
+
+
+
+So when God told the Israelites that the firstborn’s life belonged to him
+
+unless ransomed, he was saying in the most vivid way possible in those
+
+cultures that every family on earth owed a debt to eternal justice—the debt
+
+of sin.
+
+
+He knows what he is doing with me, and when he has tested me, I will come forth as pure gold” (Job 23:10
+
+
+Now I know you fear God.” In
+
+the Bible, this does not refer so much to being “afraid” of God as to being
+
+wholeheartedly committed to him. In Psalm 130:4, for example, we see that
+
+“the fear of God” is increased by an experience of God’s grace and
+
+forgiveness. What it describes is a loving, joyful awe and wonder before the
+
+greatness of God. The Lord is saying, “Now I know that you love me more
+
+than anything in the world.” That’s what “the fear of God” means
+
+
+
+She must be able to say in her heart, “My
+
+desire for completely successful and happy children is selfish. It’s all about
+
+my need to feel worthwhile and valuable. If I really knew God’s love—then
+
+I could accept less-than-perfect kids and wouldn’t be crushing them. If
+
+God’s love meant more to me than my children, I could love my children
+
+less selfishly and more truly.” Anna has to put her “Isaacs” on the altar and
+
+give God the central place in her life.

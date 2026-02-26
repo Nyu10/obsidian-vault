@@ -24,3 +24,4 @@ like for Vincent, Bo, Josh, and Ethan, and Yosef God I pray for transformed hear
 Lord help them
 
 Exodus 34 6-7
+

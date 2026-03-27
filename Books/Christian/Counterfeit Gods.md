@@ -97,3 +97,20 @@ God’s love meant more to me than my children, I could love my children
 less selfishly and more truly.” Anna has to put her “Isaacs” on the altar and
 
 give God the central place in her life.
+
+
+### Chapter 5
+
+human beings have very little real power over their lives.
+
+Ninety-five percent of what sets the course of their lives is completely
+
+outside their control. This includes the century and place they are born in,
+
+who their parents and family are, their childhood environment, physical
+
+stature, genetically hardwired talents, and most of the circumstances that
+
+they find themselves in. In short, all we are and have is given to us by God.
+
+We are not infinite Creators, but finite, dependent creatures

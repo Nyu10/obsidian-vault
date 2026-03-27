@@ -114,3 +114,23 @@ stature, genetically hardwired talents, and most of the circumstances that
 they find themselves in. In short, all we are and have is given to us by God.
 
 We are not infinite Creators, but finite, dependent creatures
+
+
+
+
+Western, secular
+
+cultures make an idol out of individual freedom, and this leads to thebreakdown of the family, rampant materialism, careerism, and the
+
+idolization of romantic love, physical beauty, and profit.
+
+
+
+So why did he run? The answer is, again, idolatry, but of a very complex
+kind. Jonah had a personal idol. He wanted ministry success more than he
+wanted to obey God. Also, Jonah was shaped by a cultural idol. He put the
+national interests of Israel over obedience to God and the spiritual good of
+the Ninevites. Finally, Jonah had a religious idol, simple moral self-
+righteousness. He felt superior to the wicked, pagan Ninevites. He didn’t
+want to see them saved. Jonah’s cultural and personal idols had melded intoa toxic compound that was completely hidden from him. It led him to rebel
+against the very God he was so proud of serving

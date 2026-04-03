@@ -98,3 +98,12 @@ The account of Moses going up and down Mount Sinai in Exodus 19 – 34 is not an
 Old testamnet narratives are not allegories
 
 For example, in the narrative of David’s adultery with Bathsheba (2 Sam 11), you will not find any such statement as, “In committing adultery David did wrong.” You are expected to know that adultery is wrong because this is taught explicitly already in the Ten Commandments (Exod 20:14), which David would have known very well. The narrative illustrates the harmful consequences of his adultery to the personal life of King David and to his ability to rule.
+
+
+# Chapter 4
+
+- **Consistency:** Is the requirement consistent across the whole of Scripture?
+    
+- **Nature of the Issue:** Is the issue inherently moral/theological, or is it a matter of social custom?
+    
+- **The "Core" vs. the "Peripheral":** Distinguishing between the central message of the Gospel and the specific ways that message was lived out in a particular city like Corinth or Rome.

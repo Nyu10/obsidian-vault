@@ -85,5 +85,23 @@ it was an argument for why a person should dedicate their life to seeking true w
 
 "Go away from me now, but live on as you are doing. It cannot be that the son of these tears should perish." (3.12)
 
+- **Age 18 (Book 3/4):** They move in together in Carthage.
+- **Age 19:** She gives birth to their son, **Adeodatus** (a name meaning "Gift from God"). Augustine admits that even though the pregnancy wasn't planned, he deeply loved the boy.
+- **The Next 13+ Years:** She stays by his side through everything. When he moves from Carthage to Rome, and then from Rome to Milan for prestigious teaching jobs, she packs up and moves across the empire with him.
+- **Age 30 (Book 6):** The relationship comes to a tragic, heartbreaking end. Monica, his mother, arranges a politically advantageous marriage for him with a wealthy, high-society heiress. Because of the class divide and societal pressure, Augustine's partner is forced to leave.
+- "The woman with whom I had been used to sleep was torn from my side... My heart, which held her fast, was sliced open and wounded, and trailed blood." (6.15)
+
 
 #### Chapter 4
+
+
+e watched trashy shows and indulged our intemperate lusts;
+
+Without you, what am I to myself but a guide to my own downfall?
+
+a relationship of love charged with carnal desire in which children may be born even against the parents' wishes—though once they are born one cannot help loving them.
+
+
+O Lord, and to say, Have mercy on me; heal my soul, for I have sinned against you;* it is good to beware of abusing your forgiveness by regarding it as a license to sin, and good to remember our Lord's warning, See now, you are healed: sin no more, lest some worse fate befall you.
+
+No, for I neither hoped that he would come back to life nor made my tears a plea that he should; I simply mourned and wept, for I was beset with misery and bereft of my joy.

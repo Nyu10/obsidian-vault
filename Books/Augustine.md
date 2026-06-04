@@ -105,3 +105,42 @@ a relationship of love charged with carnal desire in which children may be born 
 O Lord, and to say, Have mercy on me; heal my soul, for I have sinned against you;* it is good to beware of abusing your forgiveness by regarding it as a license to sin, and good to remember our Lord's warning, See now, you are healed: sin no more, lest some worse fate befall you.
 
 No, for I neither hoped that he would come back to life nor made my tears a plea that he should; I simply mourned and wept, for I was beset with misery and bereft of my joy.
+
+Yet its place was taken, not indeed by fresh sorrows, but by the seeds of fresh sorrows; for how had that sorrow been able so easily to pierce my inmost being, if not because I had poured out my soul into the sand by loving a man doomed to death as though he were never to die?
+
+feels guilt if we fail to love someone who responds to us with love, or do not return the love of one who offers love to us, and this without seeking any bodily gratification from the other save signs of his goodwill
+
+
+
+Return to your heart, then, you wrongdoers^ and hold fast to him who made you. Stand with him and you will stand firm, rest in him and you will find peace. Where are you going, along your rough paths? Tell me, where are you going? The good which you love derives from him, and insofar as it is referred to him it is truly good and sweet, but anything that comes from him will justly turn bitter if it is unjustly loved by people who forsake him. Why persist in walking difficult and toilsome paths?45 There is no repose where you are seeking it. Search as you like, it is not where you are looking. You are seeking a happy life in the realm of death, and it will not be found there. How could life be happy, where there is no life at all?
+
+
+23. This orator, however, was the sort of man I loved in the sense of wanting to be like him. I was driven off course by my pride and tossed about by every wind,59 for your guidance of me was very unobtrusive.
+
+did not realize that you are yourself identical with your greatness and beauty, whereas a material thing is not great and beautiful simply because it is that thing, because even if it were smaller or less beautiful it would still be the material thing it is. No, the reading had been no profit to me—a hindrance, rather.
+
+First to go is the dedication, which was made to Hierius, a Roman orator well known at the time. Augustine recognizes that he dedicated his work to this man solely because Hierius was popular: "I used to love people on the basis of human judgement, not your judgement, my God."
+
+
+
+You cannot find permanent peace in temporary things.
+
+In his book, he claimed that Evil was a physical "substance" fighting against Good. He now realizes this is a major Manichean mistake: if God is all-powerful, Evil cannot be a physical thing that rivals Him.
+
+_The Categories_ by the philosopher Aristotle. At the time, he thought he was a genius because he understood this incredibly difficult book all by himself without a teacher.
+
+But it actually confused him more. The book taught him to judge things by physical traits (like size and beauty).
+
+
+my biggest fear is that i move to nyc to live in that basement
+just to find out it was a waste of my life grinding away in startup
+only for money
+
+what type of life is that
+
+lord i pray that you help me figure out what type of life i need and love the most 
+
+
+Faustus
+	was a scam
+predicted eclipses of the sun's light, or the moon's, many years in advance, indicating precisely the day, the hour, and the extent of the eclipse

@@ -66,3 +66,24 @@ _"Our heart is unquiet until it rests in you."_ (This is the most famous line in
 
 
 **The Quote:** _"What did it profit me, O God, my true life, that my speech was acclaimed above those of my many peers and fellow-students? Was it not all smoke and wind?"_
+
+
+#### Chapter 3
+"I went to Carthage, where I found myself in the midst of a sizzling frying pan of scandalous loves." (3.1)
+"I was not yet in love, but I was in love with love... I was looking for something to love, because I was in love with loving." (3.1)
+
+He becomes obsessed with watching stage tragedies because he likes the emotional rush of crying over fictional people's problems. He looks back at this later and asks himself why he wanted to watch things that made him sad, realizing it was a cheap substitute for real emotional healt
+
+Why is it that a person should wish to experience suffering by watching grievous and tragic events which he himself would not wish to endure?
+
+it was an argument for why a person should dedicate their life to seeking true wisdom.
+> "The book changed my outlook... and gave me new desires and purposes." (3.4)
+"The food we dream of is very like the food we eat when we are awake, but it does not nourish because it is only a dream. Yet the things they gave me to eat were not in the least like you... They were dream-substances, mock realities..." (3.
+
+
+"She wept for me to you, shedding more tears than any mother sheds over the bodily corpse of her child." (3.11)
+
+"Go away from me now, but live on as you are doing. It cannot be that the son of these tears should perish." (3.12)
+
+
+#### Chapter 4

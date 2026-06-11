@@ -144,3 +144,13 @@ lord i pray that you help me figure out what type of life i need and love the mo
 Faustus
 	was a scam
 predicted eclipses of the sun's light, or the moon's, many years in advance, indicating precisely the day, the hour, and the extent of the eclipse
+
+
+Chapter 5
+I began to love him, of course, not at first as a teacher of the truth, for I had entirely despaired of finding that in your Church, but as a person who was kind to me. I listened diligently to him preaching to the people, not with the intent I should have had, but as it were to judge his eloquence
+
+
+Book 6
+So certain was she that you, who had promised her everything, would grant what was still lacking, that she told me very tranquilly and with full confidence that in Christ she believed she would see me a faithful Catholic before she departed from this life.
+
+that I would have to pass through a still more dangerous condition—a crisis, as the physicians call it—on my way from sickness to health.

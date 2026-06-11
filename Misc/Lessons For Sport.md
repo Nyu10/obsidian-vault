@@ -66,7 +66,8 @@ Varsity Tennis
 Huron Valley tennis
 
 ### Beginner
-
+![[Screenshot 2026-06-10 at 11.19.34 PM.png]]
+Waitlisted and its closer to $30
 Monday / Wednesday  |  6:00–7:00pm  |  **$19/day**
 
 For adults new to tennis or returning after time away. Covers fundamental strokes, movement, and rallying in a relaxed, social setting. A great way to learn the game and build confidence on court.

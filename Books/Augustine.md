@@ -154,3 +154,13 @@ Book 6
 So certain was she that you, who had promised her everything, would grant what was still lacking, that she told me very tranquilly and with full confidence that in Christ she believed she would see me a faithful Catholic before she departed from this life.
 
 that I would have to pass through a still more dangerous condition—a crisis, as the physicians call it—on my way from sickness to health.
+
+mom was humble
+criticizing her own custom rather than sitting in judgment on his prohibition.
+
+
+
+"I longed to become as certain of those things I could not see as I was that seven and three make ten."
+> "But just as someone who has suffered under a bad physician may often be afraid to entrust himself to a good one, so it was in my soul's case. It could be healed only by believing, yet it shirked the cure for fear of believing what was false."
+
+He compares himself to a sick patient who wants to get well but refuses to trust a medical professional because a previous fake doctor badly mistreated them:

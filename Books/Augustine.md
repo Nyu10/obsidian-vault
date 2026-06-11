@@ -216,3 +216,8 @@ She had returned to Africa, vowing to you that she would never give herself to a
 
 
 ...whence came my inability to be happy, even in the sense in which I then understood happiness, without my friends, however lavishly supplied I might be with carnal luxuries. I loved these friends for their own sake, and felt myself loved by them for mine."
+
+
+"But then I was forced to ask further, 'Who made me? Was it not my God, who is not merely good, but Goodness itself? Whence, then, did I derive this ability to will evil and refuse good? Is it in me simply so that I should deserve the punishment I suffer? Who established that ability in me, who planted in me this bitter cutting, when my whole being is from my most sweet God?'"\
+
+"If the devil is responsible, where did the devil come from? If he was a good angel who was transformed into a devil by his own perverted will, what was the origin of this evil will in him that turned him into a devil, when an angel is made entirely by the supremely good creator?

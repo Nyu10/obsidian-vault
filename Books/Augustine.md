@@ -164,3 +164,9 @@ criticizing her own custom rather than sitting in judgment on his prohibition.
 > "But just as someone who has suffered under a bad physician may often be afraid to entrust himself to a good one, so it was in my soul's case. It could be healed only by believing, yet it shirked the cure for fear of believing what was false."
 
 He compares himself to a sick patient who wants to get well but refuses to trust a medical professional because a previous fake doctor badly mistreated them:
+
+> "...disposed it to reflect how innumerable were the things I believed and held to be true, though I had neither seen them nor been present when they happened... and, indeed, unless we did believe them we should be unable to do anything in this life."
+
+
+How many truths there were of this kind, such as events of world history, or facts about places and cities I had never seen; how many were the statements I believed on the testimony of friends, or physicians, or various other peop
+With what unshakable certainty, moreover, did I hold fast to the belief that I had been born of my particular parents, yet I could not have known this without believing what I had heard."

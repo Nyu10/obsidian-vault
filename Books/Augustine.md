@@ -170,3 +170,12 @@ He compares himself to a sick patient who wants to get well but refuses to trust
 
 How many truths there were of this kind, such as events of world history, or facts about places and cities I had never seen; how many were the statements I believed on the testimony of friends, or physicians, or various other peop
 With what unshakable certainty, moreover, did I hold fast to the belief that I had been born of my particular parents, yet I could not have known this without believing what I had heard."
+
+
+9
+...he was undeniably happy while I was full of foreboding; he was carefree, I apprehensive.
+
+
+12
+"You make use of all of us, witting or unwitting, for just purposes known to you, and you made my heart and tongue into burning coals with which to cauterize a promising mind that was wasting away, and heal it."
+-> alypius felt challengeed

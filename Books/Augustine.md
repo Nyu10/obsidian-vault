@@ -195,3 +195,24 @@ While this wasn't technically illegal, he realized it was ethically gray—it wa
 
 Nebridius
 > "He had left behind his home territory... left his father's fine estate... and come to Milan for no other purpose than to live with me and share in our fiercely burning zeal for truth and wisdom."
+
+
+> "Ah, but in that case, when are we to pay court to our important friends, whose patronage we need? When prepare the lessons we sell to our students? When refresh ourselves and relax our minds...?"
+> -> too busy to be saved
+
+
+"Wait a little, for those things are very pleasant too; they hold no slight sweetness. We should not be too ready to shrug them off..."
+he has convinced himself that he can have it all—that he can be a successful, wealthy, married, influential politician _and_ a seeker of wisdom at the same time.
+
+"I was too stupid to realize that, as scripture testifies, no one can be continent except by your gift. Yet you would certainly have given me the gift if I had beaten upon your ears with my inward groans and cast my care upon you with resolute faith."
+
+"Not that I could myself match their nobility of mind: I was shackled by weakness of the flesh and was dragging along with me a chain forged of deadly sweetness, fearing to be freed from it and beating away his words of sound advice as though from a touchy wound, for that advice was a hand that might have set me free."
+> Worse still, the serpent was speaking through me even to Alypius, attempting to bind him too and using my tongue to scatter sweet snares in his path to trap those honorable, nimble feet."
+
+mom wanted marriage to 
+
+She had returned to Africa, vowing to you that she would never give herself to another man, and the son I had fathered by her was left with me. But I was too unhappy to follow a woman's example
+"The wound inflicted on me by the earlier separation did not heal either. After the fever and the immediate acute pain had dulled, it putrefied, and the pain became a cold despair."
+
+
+...whence came my inability to be happy, even in the sense in which I then understood happiness, without my friends, however lavishly supplied I might be with carnal luxuries. I loved these friends for their own sake, and felt myself loved by them for mine."

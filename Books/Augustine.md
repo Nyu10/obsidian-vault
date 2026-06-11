@@ -179,3 +179,19 @@ With what unshakable certainty, moreover, did I hold fast to the belief that I h
 12
 "You make use of all of us, witting or unwitting, for just purposes known to you, and you made my heart and tongue into burning coals with which to cauterize a promising mind that was wasting away, and heal it."
 -> alypius felt challengeed
+
+> ...they seized him and dragged him off, boasting to a crowd of bystanders in the market-place that they had caught the thief red-handed."
+
+a man should not readily be condemned by other men with reckless credulity.
+
+15
+
+While this wasn't technically illegal, he realized it was ethically gray—it was using his office for private gain—so he chose to decline it.
+-> Alypius
+
+16
+"This is what he was like, this man so closely united with me, the friend who concurred with me as we debated the right way to live.
+
+
+Nebridius
+> "He had left behind his home territory... left his father's fine estate... and come to Milan for no other purpose than to live with me and share in our fiercely burning zeal for truth and wisdom."

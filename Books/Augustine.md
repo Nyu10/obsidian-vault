@@ -242,3 +242,8 @@ The new will which was beginning to emerge in me... was not yet capable of maste
 Continence" (the personification of self-control and celibacy) appearing to him as a beautiful, joyful mother surrounded by millions of ordinary Christians of all ages who successfully chose a holy life.
 
 > **I turned upon Alypius, and cried out: 'What is wrong with us? What is this? What did you hear? The unlearned start up and take heaven by force, and we with all our learning, but without heart, see where we wallow in flesh and blood!'"**
+
+
+O my God, what were they bringing to my mind? May your mercy banish such memories far from me! What foul deeds were they not hinting at, what disgraceful exploits!
+
+> **"Then putting my finger next, or some other mark, I shut the book, and with a calmed countenance made it known to Alypius... We go in to my mother, we tell her; she rejoiceth. We relate in order how it took place; she leapeth for joy, and triumpheth, and blesseth thee, who art able to do above all that we ask or think."**

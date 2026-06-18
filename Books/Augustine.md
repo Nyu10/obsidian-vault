@@ -247,3 +247,28 @@ Continence" (the personification of self-control and celibacy) appearing to him 
 O my God, what were they bringing to my mind? May your mercy banish such memories far from me! What foul deeds were they not hinting at, what disgraceful exploits!
 
 > **"Then putting my finger next, or some other mark, I shut the book, and with a calmed countenance made it known to Alypius... We go in to my mother, we tell her; she rejoiceth. We relate in order how it took place; she leapeth for joy, and triumpheth, and blesseth thee, who art able to do above all that we ask or think."**
+
+"I read: 'How long, ye dull-hearted, will ye love vanity, and seek after leasing?' For I had loved vanity and sought after leasing... I cried out these things in my chamber, where I was inwardly pricked, where I had offered up my sacrifice, slaying my old self... and there thou hadst begun to grow sweet unto me, and to give gladness in my heart."
+
+
+hou didst torment me with a toothache; and when it grew so fierce that I was not able to speak, it came into my heart to desire all my friends who were present to pray for me unto thee... We fell upon our knees with a hearty desire; and as soon as we had knelt down, the pain vanished. But what a pain it was! And how did it pass away? I was terrified, O my Lord, my God, for I had never felt anything like it in all my life."
+
+
+> **"And I wrote unto thy prelate, the holy man Ambrose, my desires; and asked his advice, which of thy books was best for me to read, that I might be the better prepared and fitted for the reception of so great a grace. And he commanded me to read Isaiah the prophet..."**
+
+
+Justina, the Arian mother of the young Emperor Valentinian, was trying to persecute Bishop Ambrose and seize the church.
+
+To protect their pastor, the Christian community of Milan literally barricaded themselves inside the basilica, staging a massive, peaceful sit-in.
+
+> **"A maidservant who used to go with her to the cellar, falling out with her little mistress, as it happens, when they were alone together, cast this sin in her teeth with a most bitter insult, calling her a 'wine-bibber.' She, being struck with the sharpness of this taunt, immediately reflected upon her own foul addiction, and at once condemned it and left it off."**
+
+
+### augustine crazy
+And when our discourse was brought to that point, that the very highest pleasure of the carnal senses... was, in respect of the sweetness of that life, not only not worthy of comparison, but even of mention; we, soaring higher with a more burning affection towards the Self-same, did by degrees pass through all things bodily, even the very heaven whence sun and moon and stars shine upon the earth... and we came to our own minds, and went beyond them... and we touched it in some small degree by a moment of total concentration."
+
+
+"Hearing this, with an anxious countenance she checked him with her eyes, because he savored of such earthly things... and then looking upon me, she said: 'See what he saith.' And soon after she said to us both: 'Lay this body anywhere, let not the care for it trouble you at all. This only I request of you, that you would remember me at the altar of the Lord, wheresoever you shall be.'"
+
+
+"I closed her eyes; and there flowed withal a mighty sorrow into my heart, which was ready to overflow into tears; and my eyes at the same time, by the violent command of my mind, sucked up their tears even to dryness... Then the boy Adeodatus burst out into a loud crying, but being checked by us all, he held his peace... For we thought it not fitting to solemnize that funeral with tearful lamentations and groanings."

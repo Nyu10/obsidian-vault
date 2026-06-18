@@ -229,3 +229,16 @@ She had returned to Africa, vowing to you that she would never give herself to a
 
 Romans 1
 **21** For although they knew God, they neither glorified him as God nor gave thanks to him, but their thinking became futile and their foolish hearts were darkened. **22** Although they claimed to be wise, they became fools.
+
+
+
+
+#### Book 8
+
+Victorinus, good that he publically declared faith
+
+The new will which was beginning to emerge in me... was not yet capable of mastering my older will, which had been strengthened by deep-rooted custom. So my two wills, one old, one new, one carnal, one spiritual, were in conflict, and their duel was tearing my soul apart.
+
+Continence" (the personification of self-control and celibacy) appearing to him as a beautiful, joyful mother surrounded by millions of ordinary Christians of all ages who successfully chose a holy life.
+
+> **I turned upon Alypius, and cried out: 'What is wrong with us? What is this? What did you hear? The unlearned start up and take heaven by force, and we with all our learning, but without heart, see where we wallow in flesh and blood!'"**

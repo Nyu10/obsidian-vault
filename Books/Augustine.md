@@ -272,3 +272,6 @@ And when our discourse was brought to that point, that the very highest pleasure
 
 
 "I closed her eyes; and there flowed withal a mighty sorrow into my heart, which was ready to overflow into tears; and my eyes at the same time, by the violent command of my mind, sucked up their tears even to dryness... Then the boy Adeodatus burst out into a loud crying, but being checked by us all, he held his peace... For we thought it not fitting to solemnize that funeral with tearful lamentations and groanings."
+
+Book 9
+Chapter 12 

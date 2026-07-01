@@ -275,3 +275,12 @@ And when our discourse was brought to that point, that the very highest pleasure
 
 Book 9
 Chapter 12 
+
+
+
+
+book 10
+> **"You called, you shouted, and you broke through my deafness.** You flashed, you shone, and you dispelled my blindness. **You breathed fragrance upon me, and I drew in my breath and now I pant for you.** I tasted you, and now I hunger and thirst for you. You touched me, and I burned for your peace."
+
+
+**"When I shall cleave to you with my whole being, there will be no more grief or toil for me,** and my life will be life indeed, wholly filled with you. But now... I am a burden to myself. **My joys, which deserve to be wept over, contend with my sorrows, which are cause for joy;** and I do not know which side will win the day."

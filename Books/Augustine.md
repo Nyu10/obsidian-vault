@@ -284,3 +284,5 @@ book 10
 
 
 **"When I shall cleave to you with my whole being, there will be no more grief or toil for me,** and my life will be life indeed, wholly filled with you. But now... I am a burden to myself. **My joys, which deserve to be wept over, contend with my sorrows, which are cause for joy;** and I do not know which side will win the day."
+
+When we are praised, we are tempted to think we are better than we are. **And so, a man pleases himself, while displeasing you; he delights in human praise for things that are not good, or for gifts that are yours but which he claims as his own."**

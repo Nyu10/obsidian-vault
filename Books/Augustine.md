@@ -323,3 +323,13 @@ God's nature 'will never vary at different times,' and 'his will is not external
 1) God made heaven and earth; 2) The 'beginning' refers to God's wisdom; 3) 'heaven and earth' is a label for 'all natures made and created' (for Augustine, this means the heaven of heaven and formless matter); 4) mutability implies 'a kind of formlessness' in that everything mutable is in a state of flux; 5) what is so totally mutable as to be without form and therefore changeless (as in the case of formless matter) has no experience of time; 6) what is totally formless cannot suffer temporal successiveness (essentially the same point as 5); 7) a source sometimes takes the name of its product (as in Augustine's reading of 'heaven and earth' as 'heaven of heaven and formless matter'); 8) 'earth and the abyss' in Genesis refers to formed objects that possess almost total formlessness; 9) God made everything that has form as well as everything capable of receiving form; and 10) anything that 'acquires form' is first formless. Augustine does not number these points--they are presented in list form.
 
 The reading that Augustine singles out for criticism holds that God made heaven and earth out of a _pre-existing_ formless matter. For Augustine, this view is untenable because it suggests that there is something that God did not make.
+
+
+
+The first is reserved for issues regarding the 'truth of the matter in question.' The second category centers upon the 'intention of the writer.' In the former case, there is no leeway: the essential and basic truth of Genesis is, undeniably, God's unchanging truth, and all parties must appeal to this single truth for justification. The latter case, in which readers argue about Moses' intended meaning and the words he used to express it, leaves room for multiple interpretations and therefore, disagreement, since no one can know Moses' motivation when he wrote Genesis. For this very reason, however, it is somewhat futile to speculate on Moses' authorial intention—to do so is to ignore the deeper truths for which his 'articulation is appropriate.' Moses, whatever he desired to write, created the best possible version of God's truth.
+
+
+
+**"What does it matter to me if Moses had a different meaning in mind than I do?** ... Provided that what I see is true, and what he saw is true, **then it is the Truth itself that speaks to both of us.** ... Let us not fight over what was passing through the mind of a human writer, but rather rejoice in what the Holy Spirit reveals to us through his words."
+
+a present of past things, a present of present things, and a present of future things."

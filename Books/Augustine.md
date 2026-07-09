@@ -286,3 +286,30 @@ book 10
 **"When I shall cleave to you with my whole being, there will be no more grief or toil for me,** and my life will be life indeed, wholly filled with you. But now... I am a burden to myself. **My joys, which deserve to be wept over, contend with my sorrows, which are cause for joy;** and I do not know which side will win the day."
 
 When we are praised, we are tempted to think we are better than we are. **And so, a man pleases himself, while displeasing you; he delights in human praise for things that are not good, or for gifts that are yours but which he claims as his own."**
+
+
+Book 11 
+all about time
+
+Augustine here shows us that the words of Genesis are not to be taken literally but spiritually (a crucial approach that he learned largely from Bishop Ambrose).
+
+God's word cannot have unfolded in time (which did not yet exist), but must be "spoken eternally."
+
+not in the sense that he was there "first" (remember, God is eternal and has nothing to do with time) but in the sense that he is the "fixed point" to which we can _return._
+
+
+Another way of stating this same interpretation is to refer to Christ (who is the "beginning") as "wisdom." Christ, for Augustine (and for all Christians), is the route by which one can seek the wisdom of God. Hence, Augustine can write here: "Wisdom is the beginning, and in the beginning you made heaven and earth."
+
+
+he act of creation is both instantaneous and eternal.
+He wasn't "doing" anything before he created the world (a common Manichee challenge), because there was no "before."
+
+The present occupies "no space" of course, but it also has "no duration" (any duration would immediately become past and future, which do not exist). Thus, when we look for time we find it to have no real existence.
+
+ The past is nothing but memory images that exist in the present. The future, on the other hand, gets its apparent existence from predictions based on signs that exist in the present.
+
+The soul, which should be abiding in the eternal present (since no other time truly exists), becomes stretched out into temporality, into an apparent successiveness of events.
+
+
+Book 12 
+to bear on issues surrounding the story of the creation.

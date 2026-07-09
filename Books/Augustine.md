@@ -313,3 +313,13 @@ The soul, which should be abiding in the eternal present (since no other time tr
 
 Book 12 
 to bear on issues surrounding the story of the creation.
+
+The idea of formless matter is often difficult to grasp - the definition itself refers to the inscrutable quality of this type of 'unintelligible' matter.
+
+God's nature 'will never vary at different times,' and 'his will is not external to his nature.' Augustine claims this interchangeability as an inherent truth, spoken in 'the inner ear' by God
+. Rather, writes Augustine, 'once and for all and simultaneously, [God] wills everything that he wills.'
+
+
+1) God made heaven and earth; 2) The 'beginning' refers to God's wisdom; 3) 'heaven and earth' is a label for 'all natures made and created' (for Augustine, this means the heaven of heaven and formless matter); 4) mutability implies 'a kind of formlessness' in that everything mutable is in a state of flux; 5) what is so totally mutable as to be without form and therefore changeless (as in the case of formless matter) has no experience of time; 6) what is totally formless cannot suffer temporal successiveness (essentially the same point as 5); 7) a source sometimes takes the name of its product (as in Augustine's reading of 'heaven and earth' as 'heaven of heaven and formless matter'); 8) 'earth and the abyss' in Genesis refers to formed objects that possess almost total formlessness; 9) God made everything that has form as well as everything capable of receiving form; and 10) anything that 'acquires form' is first formless. Augustine does not number these points--they are presented in list form.
+
+The reading that Augustine singles out for criticism holds that God made heaven and earth out of a _pre-existing_ formless matter. For Augustine, this view is untenable because it suggests that there is something that God did not make.

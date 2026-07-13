@@ -333,3 +333,25 @@ The first is reserved for issues regarding the 'truth of the matter in question.
 **"What does it matter to me if Moses had a different meaning in mind than I do?** ... Provided that what I see is true, and what he saw is true, **then it is the Truth itself that speaks to both of us.** ... Let us not fight over what was passing through the mind of a human writer, but rather rejoice in what the Holy Spirit reveals to us through his words."
 
 a present of past things, a present of present things, and a present of future things."
+
+
+
+Tithing
+It is tied to your **posture** and your **sacrificial capacity**.
+In biblical terms, the goal of giving is **cheerfulness and sacrifice** (2 Corinthians 9:7).
+How cheerful and sacrificing am I in tithing
+
+
+The widow isn’t praised because her two coins funded a massive temple project; she is praised because her absolute dependence was on God
+
+I guess God doesn't need my coffee shop to change the world
+
+I just want that to build his kingdom
+This model struggles to fund massive, long-term initiatives—like building hospitals, launching tech platforms for global ministry, or financing large-scale cultural creation—which require massive pools of accumulated, well-managed capital.
+	God I genuienyl beleive me keepign thsi money is to build your kingdom
+	in college I tithed 10% when i wasn't even mature
+i want to give you everything Lord even though i know i spend wastefully on some random stuff and hjobbies like watches, eventaully htis is truly all for you Lord
+
+**The Ecosystem:** A "Christian business" doesn't just give money at the end of the year; it provides meaningful employment, models ethical leadership in the marketplace, and solves real-world problems through its products. It generates _systemic_ value.
+	I want to build jobs and solve real problems
+	Wealth has a compounding gravity; as the numbers grow, your lifestyle, your liabilities, and your desire for security scale right along with them. The muscle of generosity can atrophy if it isn't exercised while the stakes are low.

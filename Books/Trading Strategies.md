@@ -39,3 +39,19 @@ also credit spread
 
 never roll for a debt -> always want to be collecting money
 	roll up or roll same 
+
+
+
+
+### For stocks that are performing well
+
+- **The Action:** If a stock like AMZN runs so hard that it grows to represent **12%** of your net worth, you automatically trim it back to **8%**.
+- **The Result:** This forces you mathematically to **sell high** and reinvest the profits into cheaper, lagging assets.
+
+If you buy a high-conviction stock and it rises **100% (doubles)**:
+- **The Action:** Sell exactly **50%** of your position.
+- **The Result:** You have pulled your entire original cash investment out of the stock. You are now playing with "house money." Your cost basis is effectively $$0$, and you can hold the remaining shares forever with zero stress.
+
+
+- **The Action:** If a stock’s historical average P/E is 25x, but speculative mania pushes its P/E to **50x**, you trim 25% of your position.
+- **The Result:** You harvest cash when market greed is at its peak.

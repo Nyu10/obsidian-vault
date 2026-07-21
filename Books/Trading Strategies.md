@@ -55,3 +55,4 @@ If you buy a high-conviction stock and it rises **100% (doubles)**:
 
 - **The Action:** If a stock’s historical average P/E is 25x, but speculative mania pushes its P/E to **50x**, you trim 25% of your position.
 - **The Result:** You harvest cash when market greed is at its peak.
+

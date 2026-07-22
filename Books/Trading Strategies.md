@@ -56,3 +56,11 @@ If you buy a high-conviction stock and it rises **100% (doubles)**:
 - **The Action:** If a stock’s historical average P/E is 25x, but speculative mania pushes its P/E to **50x**, you trim 25% of your position.
 - **The Result:** You harvest cash when market greed is at its peak.
 
+
+
+
+Anything over 30% means you are getting a mathematically good deal.
+IV RAnk
+
+Fora5-wide spread, you should _never_ accept less than **0.50∗∗.Collecting0.50∗∗.Collecting0.50 gives you exactly a 10% Return on Capital (50on50on450 risk).
+$5 spread don't accept less than 50 cents which is 10% return on capital

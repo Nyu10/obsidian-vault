@@ -64,3 +64,13 @@ IV RAnk
 
 Fora5-wide spread, you should _never_ accept less than **0.50∗∗.Collecting0.50∗∗.Collecting0.50 gives you exactly a 10% Return on Capital (50on50on450 risk).
 $5 spread don't accept less than 50 cents which is 10% return on capital
+
+
+Options is actually just volatitlity and time
+
+Delta (usually probablity of profit) -> expected change in option when stock changes 
+0.6 = stock rises $1, option gains $0.6 
+Puts -0.3 = stock rises $1, otpion loses 0.3
+	put option 
+STocks = delta 1? 
+Gamma

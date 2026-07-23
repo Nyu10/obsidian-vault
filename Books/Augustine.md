@@ -355,3 +355,11 @@ i want to give you everything Lord even though i know i spend wastefully on some
 **The Ecosystem:** A "Christian business" doesn't just give money at the end of the year; it provides meaningful employment, models ethical leadership in the marketplace, and solves real-world problems through its products. It generates _systemic_ value.
 	I want to build jobs and solve real problems
 	Wealth has a compounding gravity; as the numbers grow, your lifestyle, your liabilities, and your desire for security scale right along with them. The muscle of generosity can atrophy if it isn't exercised while the stakes are low.
+
+Book 13 
+**he Comparison:** Just as a single human mind possesses three distinct aspects—**existence** (being/memory), **intellect** (knowledge/understanding), and **agency** (will/love)—yet remains one unified person, the Christian God is three distinct persons sharing one unified divine essence.
+
+
+**Beasts = Impulses of the Soul:** The animal kingdom represents the raw, primal passions and instincts within human nature that need to be governed by reason and spirit.
+
+The Father can be identified with being or existence: God the Father is eternal, perfect, and unchanging. The Son can be identified with knowledge: God the Son is the Word, the eternal Wisdom that gave order and meaning to the creation. The Holy Spirit can be identified with the will: God the Holy Spirit is the activity of God, at work throughout history and specifically within the body of the Church.

@@ -74,3 +74,24 @@ Puts -0.3 = stock rises $1, otpion loses 0.3
 	put option 
 STocks = delta 1? 
 Gamma
+
+
+## factor investing
+
+- **AQR White Paper:** _"Fact, Fiction, and Value Investing"_ (Asness et al., 2015)
+    
+- **Why read it:** It addresses common concerns about value investing, such as fear of growth tech dominance, value traps, and extended periods of underperformance.
+    
+
+#### 2. The Core Factor Mechanics (30 Minutes)
+
+- **Academic Paper:** _"The Other Side of Value: The Gross Profitability Premium"_ (Novy-Marx, 2013)
+    
+- **Why read it:** This single paper transformed modern factor investing. It mathematically proves why pairing **Value** with **High Profitability** (which is how funds like AVGV / Avantis operate) eliminates unprofitable "junk" value traps.
+    
+
+#### 3. Practical Portfolio & Execution (15 Minutes)
+
+- **Avantis Institutional Paper:** _"Deconstructing Factor Premiums in Global Equities"_ (Avantis Investors)
+    
+- **Why read it:** It explicitly outlines how Avantis structures multi-factor funds (like AVGV) to capture systematic premiums across market caps while minimizing turnover costs.

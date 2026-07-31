@@ -95,3 +95,24 @@ Gamma
 - **Avantis Institutional Paper:** _"Deconstructing Factor Premiums in Global Equities"_ (Avantis Investors)
     
 - **Why read it:** It explicitly outlines how Avantis structures multi-factor funds (like AVGV) to capture systematic premiums across market caps while minimizing turnover costs.
+
+
+
+
+### ON retirement
+
+- **From "Maximizing Compensation" to "Maximizing Fit & Sustainability":** You do not need to take a high-stress or toxic job strictly for a 20% pay bump. Because your foundational wealth is established, career moves can prioritize **remote flexibility, low burnout, and long-term skill development**.
+    
+- **Job Loss Security:** If you face a layoff or want to take a low-stress Coast job, you only need an income that covers your _immediate living expenses_. You don't need to stress about maintaining a massive savings rate during transitional periods.
+    
+- **The "More Money" Dilemma:** Taking a higher-paying job isn't wrong, but the _marginal utility_ of an extra dollar for you right now goes toward **shrinking your timeline to early retirement** or **increasing your capacity to give**, rather than basic survival.
+I"m lowkey good
+	which is so sad my mom is not 
+
+
+
+**Optimize for Work-Life Integration:** Evaluate job opportunities based on remote flexibility, autonomy, and low friction rather than pure salary maximization.
+-> so troll if mom didn't take my 30k year i'd be evne more bing chilling tbh 
+
+
+3. "Life does not consist in an abundance of possessions." _(Luke 12:15)_

@@ -7,3 +7,12 @@ Legality adn Morality
 
 
 Passion will have everything now—that is to say, in this life. Just so are the people of this world—they must have all their good things now, they cannot wait until next year— that is, until the next world—for their portion of good
+
+
+I was once a fair and flourishing professor—both in my own eyes, and also in the eyes of others! I once was, as I thought, headed for the Celestial City; and had joy at the thought that I would get there." Christian further questioned, "Well—what are you now?" The man responded,"I am now a man of despair, and am locked up in despair—as in this iron cage. I cannot get out. O, I cannot escape!
+
+
+,"I have crucified Him afresh; I have scorned His person; I have despised His righteousness; I have counted His blood as an unholy thing; I have insulted and disdained the Spirit of grace. Therefore I have shut myself out of all the promises, and there now remains nothing for me but threatenings—dreadful threatenings, fearful threatenings of certain judgment and fiery indignation, which shall devour me as God's adversary
+
+
+For the lusts, pleasures, and profits of this world— in the enjoyment of which, I promised myself much delight. But now, every one of those things bite me, and gnaw me like a burning worm!

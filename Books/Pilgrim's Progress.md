@@ -4,3 +4,6 @@
 
 
 Legality adn Morality
+
+
+Passion will have everything now—that is to say, in this life. Just so are the people of this world—they must have all their good things now, they cannot wait until next year— that is, until the next world—for their portion of good

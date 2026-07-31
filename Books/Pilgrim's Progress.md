@@ -16,3 +16,17 @@ I was once a fair and flourishing professor—both in my own eyes, and also in t
 
 
 For the lusts, pleasures, and profits of this world— in the enjoyment of which, I promised myself much delight. But now, every one of those things bite me, and gnaw me like a burning worm!
+
+
+what is sepulcher
+what is vain glory 
+define prudence
+
+
+Then Christian wept, and said, "O how willingly I would have done it! But all of them were utterly averse to my going on pilgrimage
+
+"Why, my wife was afraid of losing this world—and my children were given to the foolish delights of youth! So by one thing or another, I was forced to go on pilgrimage alone
+
+
+p49
+

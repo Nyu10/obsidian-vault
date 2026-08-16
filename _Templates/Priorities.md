@@ -175,3 +175,19 @@ Ultimately need an eternal perspective for why I do these things and not just be
 #9 and 10 simliar to 5
 
 #8, 1 session of drums before the set (new skill not just the songs)
+
+
+Looks maxing I should do 
+
+
+
+Cleaneser -> Mosturizer -> SPF
+**Night:** Cleanser $\rightarrow$ Active treatment (Retinol/Tretinoin or Exfoliant 2–3x/week) $\rightarrow$ Hydrating night cream.
+Reduce excessive sodium and alcohol, which dilute facial sharpness.
+
+hydrating toner
+
+**Oral Hygiene & Jawline:** Keep teeth white (whitening strips/routine) and stay hydrated to minimize facial bloating. Reduce excessive sodium and alcohol, which dilute facial sharpness.
+
+
+- **Hydration:** Aim for 3+ liters of water daily. It improves skin elasticity, digestion, and energy levels.

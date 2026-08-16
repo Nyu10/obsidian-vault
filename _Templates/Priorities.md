@@ -189,5 +189,4 @@ hydrating toner
 
 **Oral Hygiene & Jawline:** Keep teeth white (whitening strips/routine) and stay hydrated to minimize facial bloating. Reduce excessive sodium and alcohol, which dilute facial sharpness.
 
-
 - **Hydration:** Aim for 3+ liters of water daily. It improves skin elasticity, digestion, and energy levels.

@@ -116,3 +116,12 @@ I"m lowkey good
 
 
 3. "Life does not consist in an abundance of possessions." _(Luke 12:15)_
+
+
+Notes
+	i'm fkn stupid and lost 1200 mostly cuz i lost 5 trades on avgo and 4 trades on IWM at 285 
+		i got fkn greedy adn didn't realize it coudl get that bad
+
+now i'm really upset
+cuz i lost a lot of money genuinely
+real money that i didn't have to lose 

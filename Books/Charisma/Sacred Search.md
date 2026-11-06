@@ -122,3 +122,10 @@ How will you spend your evenings?
 	working on mission field 
 	selling stuff
 	eating dinner with friends 
+
+
+if you will seek first God’s kingdom and His righteousness and let that agenda drive your decision regarding whom you choose to marry and refuse to compromise on that, you will set yourself up for a much more fulfilling, spiritually enriching, and overall more satisfying marriage.
+
+
+A woman from a broken home who has a high fear of abandonment often wants to rush things to “lock in” the relationship, pushing for an early engagement
+-> Is this me?

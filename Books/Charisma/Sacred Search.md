@@ -132,3 +132,7 @@ A woman from a broken home who has a high fear of abandonment often wants to rus
 
 
 Do you see a man who is hasty in his words? There is more hope for a fool than for him” (Prov. 29:20 ESV)
+
+
+And lest you think that “mission-based woman” sounds boring, puritanical, and even asexual, let me assure you that when it comes to sex, virtue is your friend. Find a godly wife who is motivated by God, not just her own desires. God will never stop loving you, God will never stop caring about you, so if a woman is motivated by God and
+listens to God, she’ll keep loving you, too (including sexually), because she’ll get that love and motivation from God. And, not to be mean or anything, but there are times when you won’t be all that lovable. If your future wife isn’t motivated by God, there’s not enough about you to keep her interested

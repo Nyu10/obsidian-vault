@@ -177,3 +177,14 @@ Intention a spiritual leader, to love and cherish her the way Christ loves the c
 
 ##### Closing
 We mainly wanted to share our hearts with you, ask for your prayers, and hopefully earn your blessing as we move forward."
+
+
+
+2. How can the content of Abraham’s servant’s prayer— searching for an extraordinarily kind partner for his master’s son—direct our own prayers for a future spouse? 
+
+
+3. If someone truly believes that God is calling them to marry a particular person, what are some reasonable tests of that calling?
+I can not definitelvy say God is clalingme to marry her
+
+
+Studies and personal experience reveal that most people find their eventual mate at church or work or are introduced through family and friends. A growing number are signing up for an online matchmaking service. These are all solid avenues to explore.

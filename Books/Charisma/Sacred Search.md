@@ -136,3 +136,44 @@ Do you see a man who is hasty in his words? There is more hope for a fool than f
 
 And lest you think that “mission-based woman” sounds boring, puritanical, and even asexual, let me assure you that when it comes to sex, virtue is your friend. Find a godly wife who is motivated by God, not just her own desires. God will never stop loving you, God will never stop caring about you, so if a woman is motivated by God and
 listens to God, she’ll keep loving you, too (including sexually), because she’ll get that love and motivation from God. And, not to be mean or anything, but there are times when you won’t be all that lovable. If your future wife isn’t motivated by God, there’s not enough about you to keep her interested
+
+
+Jesus’s teachings direct us to make a decision that will lead to righteousness —to seek someone who will inspire us toward godliness, who will confront us when we go astray, who will forgive us when we mess up, who can encourage us with wisdom when we are uncertain about how to proceed
+
+
+
+If you marry someone with serious mental issues, addictions, or character flaws, it’s like entering a marathon with a heavy backpack. Ask yourself, will the person I’m considering help me run the race God has laid out before me, or will they act like an anchor dragging at my feet?
+
+“A wife of noble character who can find?” (31:10). This verse assumes that we are involved in a serious pursuit, actively engaging our minds to make a wise choice. And the top thing a young man should consider is this: “Charm is deceptive, and beauty is fleeting; but a woman who fears the LORD is to be praised” (Prov. 31:30)
+
+1 Corinthians 7:39, where Paul clearly left the choice of marriage up to us in the clearest, most explicit of terms: “She is free to marry anyone she wishes, but he must belong to the Lord.”
+
+
+
+#### Talk to parents 
+
+#### How are they doing weather 
+
+Thank you for taking time to call 
+I wanted to be direct
+
+Incredible daughter 
+I value and respect both of you
+
+
+Partnership
+
+> "Kayla has become my closest partner in everything. We share the same values, support each other's goals, and I am completely certain that she is the person I want to spend my life with."
+
+
+Faith Foundation
+
+Intention a spiritual leader, to love and cherish her the way Christ loves the church, and to build a Christ-centered home together.
+
+
+**Reassuring Them on Security & Care**
+
+> "I know that as her parents, her happiness and security are your top priorities—they are mine, too. My commitment to her isn't just emotional—it's a vow before God to protect, provide for, and walk beside her through every season of life."
+
+##### Closing
+We mainly wanted to share our hearts with you, ask for your prayers, and hopefully earn your blessing as we move forward."

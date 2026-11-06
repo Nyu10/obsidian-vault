@@ -129,3 +129,6 @@ if you will seek first God’s kingdom and His righteousness and let that agenda
 
 A woman from a broken home who has a high fear of abandonment often wants to rush things to “lock in” the relationship, pushing for an early engagement
 -> Is this me?
+
+
+Do you see a man who is hasty in his words? There is more hope for a fool than for him” (Prov. 29:20 ESV)

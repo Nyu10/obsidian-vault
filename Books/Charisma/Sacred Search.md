@@ -209,3 +209,25 @@ Child abuse, sexual deviancy, psychological problems, and addictions not only wi
 
 
 6. How can you tell ahead of time how good a parent someone might be?
+
+Key Indicators of Future Parenting Capability Emotional Regulation Under Pressure: Watch how they respond when things go wrong—such as traffic delays, technical failures, or canceled plans. Do they resort to yelling, blaming, and helplessness, or do they pause, problem-solve, and regulate their nervous system? Children will constantly push emotional limits, making self-regulation the single most critical parental trait. Accountability and Apology: Notice how they handle making a mistake or being called out. Can they offer a genuine, unforced apology without deflecting, gaslighting, or making themselves the victim? A future parent must be able to model accountability rather than ego. Consistency and Reliability: Look at their follow-through on commitments, both big and small. Parenting is a relentless exercise in daily, unglamorous execution. Someone who chronically flakes, struggles with basic reliability, or leaves others to pick up their slack will likely struggle with the unending operational load of raising a child. Empathy and Perspective-Taking: Observe how they treat people who cannot offer them anything in return—service workers, waitstaff, strangers, or animals. More importantly, notice if they can validate someone else's feelings during an argument even when they disagree. If winning an argument matters more to them than preserving emotional connection, conflict resolution with a child or co-parent will be exceptionally difficult. Division of Labor and Anticipatory Effort: Pay attention to how they handle shared responsibilities in a household or partnership. Do they wait to be told what to do (requiring management), or do they anticipate needs and take initiative? A partnership that relies on one person doing all the mental planning and administrative burden usually buckles under the immense coordination required by a family. Attitude Toward Growth and Reflection: Assess whether they view human behavior as fixed ("that's just how I am") or malleable. Parents who are open to self-reflection, learning, and changing their minds are infinitely better equipped to adapt as their children transition through unpredictable developmental stages.
+
+
+A humble person: • Lives with biblical conviction of our overall sin nature as well as particular sins. • Lives out of the gospel—that we are helpless to save or even change ourselves, apart from the work of Christ and the empowerment of the Holy Spirit. • Is open to receiving appropriate correction and eager to take action when faults are pointed out. • Lives authentically—is concerned with growing in righteousness rather than merely appearing righteous. • Aspires to excel in being a servant.
+
+
+How do you know the person you love is capable of forgiving? First, that person recognizes his or her own need for forgiveness, understands God’s love and acceptance, and not only believes the gospel but has it woven into every fiber of his or her being: we are all sinners saved by grace who depend on God’s mercy and initiating grace every hour of our lives
+
+
+
+is humble. _____ 
+
+is forgiving. _____ 
+
+resolves conflict in a healthy way. _____ 
+
+knows how to communicate. _____ 
+
+prays. _____
+
+is skilled in the art of friendship. ___

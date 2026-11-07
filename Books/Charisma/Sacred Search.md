@@ -135,7 +135,7 @@ Do you see a man who is hasty in his words? There is more hope for a fool than f
 
 
 And lest you think that “mission-based woman” sounds boring, puritanical, and even asexual, let me assure you that when it comes to sex, virtue is your friend. Find a godly wife who is motivated by God, not just her own desires. God will never stop loving you, God will never stop caring about you, so if a woman is motivated by God and
-listens to God, she’ll keep loving you, too (including sexually), because she’ll get that love and motivation from God. And, not to be mean or anything, but there are times when you won’t be all that lovable. If your future wife isn’t motivated by God, there’s not enough about you to keep her interested
+listens to God, she’ll ke ep loving you, too (including sexually), because she’ll get that love and motivation from God. And, not to be mean or anything, but there are times when you won’t be all that lovable. If your future wife isn’t motivated by God, there’s not enough about you to keep her interested
 
 
 Jesus’s teachings direct us to make a decision that will lead to righteousness —to seek someone who will inspire us toward godliness, who will confront us when we go astray, who will forgive us when we mess up, who can encourage us with wisdom when we are uncertain about how to proceed
@@ -144,7 +144,7 @@ Jesus’s teachings direct us to make a decision that will lead to righteousness
 
 If you marry someone with serious mental issues, addictions, or character flaws, it’s like entering a marathon with a heavy backpack. Ask yourself, will the person I’m considering help me run the race God has laid out before me, or will they act like an anchor dragging at my feet?
 
-“A wife of noble character who can find?” (31:10). This verse assumes that we are involved in a serious pursuit, actively engaging our minds to make a wise choice. And the top thing a young man should consider is this: “Charm is deceptive, and beauty is fleeting; but a woman who fears the LORD is to be praised” (Prov. 31:30)
+“A wife of noble character who can find?” (31:10). This verse assumes that we are involved in a serious pursuit, actively engaging our minds to make a wise choice. And the top thing a young man should. consider is this: “Charm is deceptive, and beauty is fleeting.  but a woman who fears the LORD is to be praised” (Prov. 31:30)
 
 1 Corinthians 7:39, where Paul clearly left the choice of marriage up to us in the clearest, most explicit of terms: “She is free to marry anyone she wishes, but he must belong to the Lord.”
 

@@ -188,3 +188,24 @@ I can not definitelvy say God is clalingme to marry her
 
 
 Studies and personal experience reveal that most people find their eventual mate at church or work or are introduced through family and friends. A growing number are signing up for an online matchmaking service. These are all solid avenues to explore.
+
+
+
+It’s a matter of personal preference, but if you’re committed to living a Godhonoring life—no sex before marriage, no drunkenness, not wasting gobs of time on meaningless entertainment (s o m e downtime is of course appropriate), what is marriage holding you back from?
+
+
+You don’t know what the future holds, but you can know the kind of character you’re marrying. The spiritual capacity to hope, even in the face of seemingly insurmountable obstacles, is an essential quality in life —“Against all hope, Abraham in hope believed” (Rom. 4:18). Don’t minimize the importance of marrying someone who is spiritually tough, who doesn’t grumble and forget all about God at the first sign of trouble. Life is usually full of trouble
+-> Feel like if kayla gets sick my mom would mock me for it and i would hate her for it
+
+
+Character is the surest thing. Even if the two of you manage to avoid a medical maelstrom, the vast majority of you will have to navigate something else that will test you to your core: having children.
+
+
+Women, if you don’t want your boys to grow up to be just like the guy you’re marrying, you’re looking at the wrong man. Men, if you couldn’t tell your sons, “Find someone exactly like your mom to marry,” then she’s not the one for you.
+
+
+
+Child abuse, sexual deviancy, psychological problems, and addictions not only will make your potential spouse more vulnerable as he or she ages (some of these problems take a while—until a person is in his or her midthirties—to sprout) but can also be passed down, in some sense, to your kids. I’m not saying it’s always direct, but the statistical evidence is pretty frightening
+
+
+6. How can you tell ahead of time how good a parent someone might be?
